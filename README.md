@@ -7,3 +7,4 @@ My first repository.
    -As the story unfolds, Eun-Tak proves she can see the sword but cannot pull it at first. The Goblin realizes he wants to live after all. He eventually sacrifices himself to save Eun-Tak from an evil spirit, disappearing from the world. Years pass, and Eun-Tak grows up, forgetting her memories of him. When she starts to remember, the Goblin returns from the afterlife, and they reunite. The Grim Reaper regains memories of his tragic past as the king who killed Kim Shin and learns that Sunny was his queen.
    -In the final episodes, Eun-Tak dies young while saving others, leaving the Goblin alone once more. Years later, she is reincarnated, and the two meet again, hinting at a new beginning in their eternal love story.
    -
+[Goblin](https://mydramalist.com/18452-goblin)
